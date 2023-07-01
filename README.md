@@ -1,5 +1,4 @@
 ![](https://moneycompass.com.my/wp-content/uploads/business_advantages_of_data_analysis.jpg)
-
 <h1 align="center">Hi 👋, I'm Pankaj Negi</h1>
 <h3 align="center">An MBA(Finance) Graduate with a keen interest in Data analysis from India.</h3>
 
