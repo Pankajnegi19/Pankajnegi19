@@ -1,4 +1,5 @@
-![logo](https://dragon.online-convert.com/download-file/f9d9ecef-23d0-4fd3-beef-7ab4ab8d5b2d/9f95d234-a6ec-4ed4-91e7-31ac0478b56f)
+![Blue Futuristic Technology Twitter Post (1)](https://github.com/Pankajnegi19/Pankajnegi19/assets/138196491/ce212276-3503-46b4-a090-3f73ebf4104b)
+
 <h1 align="center">Hi 👋, I'm Pankaj Negi</h1>
 <h3 align="center">An MBA(Finance) Graduate with a keen interest in Data analysis from India.</h3>
 
