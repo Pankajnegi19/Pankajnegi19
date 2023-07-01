@@ -1,4 +1,4 @@
-![](https://www.finereport.com/en/wp-content/themes/blogs/images/2019051608A.gif)
+![](https://tech.hyundai-rotem.com/wp-content/uploads/2022/05/01_1300.jpg)
 
 <h1 align="center">Hi 👋, I'm Pankaj Negi</h1>
 <h3 align="center">An MBA(Finance) Graduate with a keen interest in Data analysis from India.</h3>
