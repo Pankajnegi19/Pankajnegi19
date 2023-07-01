@@ -1,4 +1,4 @@
-![Blue Futuristic Technology Twitter Post (1)](https://github.com/Pankajnegi19/Pankajnegi19/assets/138196491/ce212276-3503-46b4-a090-3f73ebf4104b)
+![](https://www.finereport.com/en/wp-content/themes/blogs/images/2019051608A.gif)
 
 <h1 align="center">Hi 👋, I'm Pankaj Negi</h1>
 <h3 align="center">An MBA(Finance) Graduate with a keen interest in Data analysis from India.</h3>
